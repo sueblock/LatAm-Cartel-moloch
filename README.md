@@ -1,4 +1,4 @@
-![alt text](https://ibb.co/wyvyBZZ"><img src="https://i.ibb.co/fMcMqVV/logofinalfinal.png)
+
 
 This is a call to action, to everyone who wants to be part of this wonderful story.
 
