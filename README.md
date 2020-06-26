@@ -1,3 +1,17 @@
+![alt text](https://ibb.co/wyvyBZZ)
+
+This is a call to action, to everyone who wants to be part of this wonderful story.
+
+This is a story from unknown times.
+
+It's about entrepreneurs and startups, internet and blockchain, FIAT money and cryptocurrencies, evil and power.
+
+It tells us about the disruptive dream of the warriors against oppression and the bankers, through a tireless fight for the right to freedom and free thought; cyberpunks who use technology to become more human every day ...
+
+It is also the story of a sacred land full of resources and wonderful people, where fantasy and reality merge.
+
+This is ... the history of LatAm Cartel.
+
 
 
 ## Installation
